@@ -10,4 +10,4 @@
 
 内容涵盖日韩无码高潮专区，从轻柔挑逗到激情喷涌，真实还原刺激画面，带来更强代入感与视觉冲击。
 
-<span style="display:none;">[Canonical link](https://github.com/rf20250710/rf4/edit/main/README.md)</span>
+<span style="display:none;">[Canonical link](https://github.com/rf20250710/rf4)</span>
